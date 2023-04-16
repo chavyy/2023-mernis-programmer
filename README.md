@@ -1,1 +1,3 @@
 # 2023-mernis-programmer
+
+40 STAR AT GELSİN 2023 MERNİS PROGRAMDIR  
